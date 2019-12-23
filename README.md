@@ -1,15 +1,17 @@
 OGENE  KINGSLEY C.B
+
 (B.Eng Metallurgical &Material Eng, HND Physics& Electronics Tech, NEBOSH IGC HSE, CCNA)
 *System and Network Engineer * HSE Officer/Facility Manager * Azure Cloud Technical  Support Engineer
 
 Lagos, Nigeria
 Male
-+2348137311125 / 07031857798
+Contact ==+2348137311125 / 07031857798
 kingsleyogenec.b@gmail.com
 
 PROFILE
 
 A trained graduate of B.Eng Met& Mat Eng, HND Physics with Electronics  with over 10 Years relevant experience in a corporate environment. Highly skilled in handling various HSE  and  ICT functions .Adept in Cloud computing  Technology , Cisco networking, Repairs of Laptops and computers, writing Technical  HSE Legislative reports Such as EIA,EER,EAR,RAR,EMR .etc. Focused, proactive, enthusiastic individual currently seeking a position in an Organization that values passion, integrity and Professionalism
+
 EDUCATIONAL QUALIFICATIONS 	CORE COMPETENCIES  & SKILLS
 
 B.Eng Metallurgical and Material Engineering (2nd class Lower division)
