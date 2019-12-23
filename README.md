@@ -5,7 +5,7 @@ OGENE  KINGSLEY C.B
 
 Lagos, Nigeria
 Male
-Contact ==+2348137311125 / 07031857798
+Contact +2348137311125 / 07031857798
 kingsleyogenec.b@gmail.com
 
 PROFILE
