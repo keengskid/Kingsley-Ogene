@@ -12,7 +12,7 @@ PROFILE
 
 A trained graduate of B.Eng Met& Mat Eng, HND Physics with Electronics  with over 10 Years relevant experience in a corporate environment. Highly skilled in handling various HSE  and  ICT functions .Adept in Cloud computing  Technology , Cisco networking, Repairs of Laptops and computers, writing Technical  HSE Legislative reports Such as EIA,EER,EAR,RAR,EMR .etc. Focused, proactive, enthusiastic individual currently seeking a position in an Organization that values passion, integrity and Professionalism
 
-EDUCATIONAL QUALIFICATIONS 	CORE COMPETENCIES  & SKILLS
+++EDUCATIONAL QUALIFICATIONS 	CORE COMPETENCIES  & SKILLS
 
 B.Eng Metallurgical and Material Engineering (2nd class Lower division)
 Enugu  State University of Science Tech, Enugu State (ESUT): 
